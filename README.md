@@ -44,4 +44,4 @@
 ##### Старые профили в социальных сетях
 - https://ok.ru/profile/330752985436
 - https://otvet.mail.ru/profile/id27901336/
-- https://t.me/сhernovandre 
+- https://t.me/ChernovAndre 
