@@ -35,7 +35,7 @@
 ![Андрей Падре Чернов](https://sun9-15.userapi.com/uq65MKxVwAtSQid7_RsOUOTDc1yvMIrrjSa2Ng/NQotEMDQqoU.jpg)
 ![Андрей Падре Чернов](https://sun9-26.userapi.com/5dGlX0Cosyg0KyEzRPbOa2Q7kUhop0rsxSSgqg/SFqt-B-7a6s.jpg)
 
-- Ведёт блог в телеграмме https://t.me/OlisyaTS
+- Ведёт блог в телеграме https://t.me/OlisyaTS
 - Стримы на https://www.twitch.tv/tsdevochka
 
 - Аккаунт в телеграме https://t.me/olisyamck
